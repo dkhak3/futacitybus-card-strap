@@ -1,0 +1,1 @@
+futacitybus-card-strap
